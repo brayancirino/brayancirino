@@ -8,4 +8,9 @@ Meu nome é Brayan Cirino
 
 - ## Você não pode entrar em contato comigo📴
 
-- 
+- brayan.cirino@escola.pr.gov.br
+
+
+
+ ![]( https://media1.tenor.com/m/Y9lV3emtZXoAAAAd/gun-shot-shot.gif)
+
