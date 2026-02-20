@@ -14,4 +14,4 @@ Meu nome é Brayan Cirino
 
  ![]( https://media1.tenor.com/m/Y9lV3emtZXoAAAAd/gun-shot-shot.gif)
 
-https://tenor.com/pt-BR/view/flat-earth-atmosphere-and-sun-and-moon-movement-gif-18798944
+](https://tenor.com/pt-BR/view/flat-earth-atmosphere-and-sun-and-moon-movement-gif-18798944)
